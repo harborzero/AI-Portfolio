@@ -1,0 +1,1 @@
+# Jobescape AI Training Certificates

@@ -1,4 +1,7 @@
-# AI-Portfolio
+# I build crafting work that matters. Information Technology Project and Delivery Manager
+
+Servant Leadership, Operational Excellence, Cost Optimization, Team Coaching, Technology Strategy,
+Project Management, PMP Certified, Continuous Improvement, Stakeholder Engagement
 
 ## Professional AI Portfolio
 
